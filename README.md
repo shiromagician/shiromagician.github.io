@@ -1,0 +1,1 @@
+# shiroMagic.github.io
